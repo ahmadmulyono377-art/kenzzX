@@ -1,0 +1,2 @@
+# kenzzX
+belajar saham
